@@ -10,6 +10,8 @@ Back in 1978 a troupe of Mummers from south Essex, The Thameside Mummers, visite
 
 ## What do the Famous Freston Mummers do ?
 
+![TheFamousFrestonMummers](Pictures/EADT_1988_2.png)
+
 The Famous Freston Mummers are famous (even though you may not of heard of us) for performing Mumming plays. A Mumming play is the best known type of English folk-play and the plays are derived from the folk festivals of primitive agricultural communities.
 
 There are many types of Mumming plays, Hero-Combat plays, Tup plays, Sword Dance plays, Plough plays, and Robin Hood plays. The words to these Folk plays, like folk songs, are normally passed on from generation to generation by word of mouth. Indeed, it is not uncommon that if a Mummer retires from the troupe that his place should be taken up by his son. Mumming plays have been performed in many of the far reaching corners of England, Ireland, Scotland and Wales and are still performed to this day.
