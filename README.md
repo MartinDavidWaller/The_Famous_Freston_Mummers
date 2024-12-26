@@ -22,6 +22,8 @@ Because the origins of the Famous Freston Mummers is at Freston, and most of its
 
 ## When can I see the Famous Freston Mummers ?
 
+![TheFamousFrestonMummers](Pictures/EADT_1.png)
+
 By tradition, the plays are performed at certain times of the year, Plough Monday, Good Friday, All Souls and of course Christmas time.
 
 The troupes mainstay performance is on our annual "Mummers Day" which is held on the nearest Sunday to the summers solstice at the Butt & Oyster Public House, Pin Mill, Ipswich, Suffolk. On this day we are normally joined by the Thameside Mummers and we each take it in turn to woo our audience into rapturous applause - and the odd drink, or two.
