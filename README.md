@@ -1,5 +1,7 @@
 # The Famous Freston Mummers
 
+![TheFamousFrestonMummers](Pictures/EADT_2.png)
+
 Sadly the Famous Freston Mummers are no more but this used to be our glossy!
 
 ## Who are the Famous Freston Mummers ?
