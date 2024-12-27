@@ -2,7 +2,17 @@
 
 ![TheFamousFrestonMummers](Pictures/EADT_2.png)
 
-Sadly the Famous Freston Mummers are no more but this used to be our glossy!
+Past members shown above left to right:
+
++ Gordon Terry
++ Michael Coulter
++ Dick Rabjohn
++ John Clarke
++ Martin Waller
++ Joe ?
++ John Worledge
+
+Sadly the Famous Freston Mummers are no more but...
 
 ## Who are the Famous Freston Mummers ?
 
